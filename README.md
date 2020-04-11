@@ -1,1 +1,1 @@
-# ZNEWS-Daily
+# ZNEWS-Daily.com
